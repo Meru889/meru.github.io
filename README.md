@@ -1,3 +1,3 @@
 # Meru
 
-Welcome my pages.
+Welcome to my pages.
